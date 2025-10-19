@@ -1,0 +1,1 @@
+# An-lise-de-risco-e-detec-o-de-Anomalias
